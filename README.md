@@ -1,4 +1,3 @@
-Apologies for the issue with the email button. Here is the updated code that should auto-fill the email fields when clicked:
 
 # Unban Email and 10GB Panel Offer
 
