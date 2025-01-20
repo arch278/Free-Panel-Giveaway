@@ -5,7 +5,7 @@
 
 * 10GB Panel will be given to all who send this Unban Email and SS 5+
 
-📥 Send Ss  +94 72 807 0475
+📥 Send Ss  +94775676235
 
 (Screenshots 5 or more required)
 
